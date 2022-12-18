@@ -2,7 +2,7 @@
 - 👀 I’m interested in getting money
 - 🌱 I’m currently learning one subject
 - 💞️ I’m looking to collaborate on something
-- 📫 How to reach me 😐
+- 📫 How to reach me alexasandy974@gmail.com
 - 
 
 <!---
